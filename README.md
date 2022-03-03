@@ -1,4 +1,4 @@
 - 👋 Halo, aku @realrzempire
-- 👀 Akun ini merupakan akun resmi dari RZ Empire
+- 👀 Akun resmi RZ Empire
 - 🌱 Website rzempire.me
 - 📫 rzempire@mailfence.com
