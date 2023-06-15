@@ -1,4 +1,2 @@
 - 👋 Halo, aku @mcrzempire
 - 👀 Akun resmi RZ Empire
-- 🌱 Website [rzempire.me](https://rzempire.me)
-- 📫 rzempire@mailfence.com
